@@ -1,1 +1,1 @@
-# flow
+<h1 class="notranslate">Searching for <br><span><div class="Typewriter" data-testid="typewriter-wrapper"><span class="Typewriter__wrapper">game enhancement software</span><span class="Typewriter__cursor">|</span></div></span> for the every day gamer?</h1>
